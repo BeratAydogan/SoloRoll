@@ -1,0 +1,2 @@
+# SoloRoll
+Privacy Policy
