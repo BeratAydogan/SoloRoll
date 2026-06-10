@@ -83,7 +83,7 @@ We may update this Privacy Policy from time to time. If we make material changes
 
 11. Contact
 
-If you have questions about this Privacy Policy, you can contact:
+If you have questions about this Privacy Policy or you want to delete your account, you can contact:
 
 Berat Aydogan
 Email: berataydogan0044@gmail.com
